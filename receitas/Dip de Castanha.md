@@ -16,7 +16,7 @@
 1. Coloque todos os ingredientes no liquidificador, menos a cebolinha, o azeite e o limão. Bata bem até conseguir uma pasta homogênea e líquida.
 2. Adicione o suco de limão e bata um pouco. Com o liquidificador ligado, adicione o azeite de oliva aos poucos.
 3. Por último, adicione a cebolinha e pulse duas ou três vezes para que fique levemente verde e com alguns pedaços inteiros.
-4. Sirva em seguida ou conserve em geladeira. (eu conservo pois acho que o sabor melhora) 
+4. Sirva em seguida ou conserve em geladeira. (eu conservo pois acho que o sabor melhora).
 
 
 observações:
